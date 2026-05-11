@@ -1,1 +1,0 @@
-Ian GEofrey Sangalang GIT
